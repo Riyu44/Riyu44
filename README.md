@@ -17,8 +17,6 @@
 
 - 📫 How to reach me **priyanshrivastav08@gmail.com**
 
-- ⚡ Fun fact **I learn a new instrument every year - Currently learning Drums**
-
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
